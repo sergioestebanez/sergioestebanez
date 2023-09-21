@@ -3,7 +3,7 @@
 
 - 👨‍💻 All of my projects are available at [https://troopl.com/sergiestebanez](https://troopl.com/sergiestebanez)
 
-- 📫 How to reach me **sergiestebanezz@gmail.com**
+- 📫 How to reach me **sergiestebanez@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
